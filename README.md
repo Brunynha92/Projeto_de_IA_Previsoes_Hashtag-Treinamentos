@@ -1,0 +1,1 @@
+# Projeto_de_IA_Previsoes_Hashtag-Treinamentos
